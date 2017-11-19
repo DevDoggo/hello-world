@@ -6,4 +6,4 @@ I am supposed to write something about my self but I really lack self-esteem tha
 
 where do i commit changes
 
-wait this isnt bing, the masterrace chad of search engines
+wait this isnt bing, the chad of search engines
